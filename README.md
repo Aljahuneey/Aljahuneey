@@ -14,5 +14,5 @@
 * GitHub: [Aljahuneey](https://github.com/Aljahuneey)
 * ORCID: [0009-0008-3653-8554](https://orcid.org/0009-0008-3653-8554)
 * Labroots: [yahya-hassan](https://www.labroots.com/profile/yahya-hassan)
-* LinkedIn: [yahyajahun](https://linkedin.com/in/yahyajahun) 
+* LinkedIn: [yahyahassan](https://www.linkedin.com/in/yahya-hassan-316341423)
 * Email: yahyahassanx4@gmail.com 
